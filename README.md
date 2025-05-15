@@ -1,5 +1,5 @@
 - 👋 Hi, I’m John Nwabueze (@Johnad11)
-- 🌱 I’m an Agile Project Manager || Risk Analyst || Business Analyst || Financial Analyst.
+- 🌱 I’m an Project Manager || Mechatronics Engineer || Growth Enthusiast || Open to volunteering roles || AI Operation Support || Forex Trader
 - 💞️ I’m looking to work under a team as an intern.
 - 📫 Reach me at +2349075928123 on WhatsApp
 <!---
